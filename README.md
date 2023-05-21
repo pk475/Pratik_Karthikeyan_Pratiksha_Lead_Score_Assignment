@@ -1,0 +1,2 @@
+# Pratik_Karthikeyan_Pratiksha_Lead_Score_Assignment
+Upgrad Assignment submission
